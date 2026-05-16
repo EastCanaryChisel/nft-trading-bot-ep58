@@ -1,4 +1,4 @@
-# 
+# instant NFT Rarity Sniper for nft trading bot | mint-detection & wash-trading-execution offers the most advanced nft trading bot, with mint-detection and wash-trading-execution.
 
 
 
